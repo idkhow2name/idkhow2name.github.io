@@ -1,2 +1,14 @@
-# idkhow2name.github.io
-My own website
+# Website
+A website
+
+
+
+
+
+
+
+
+
+
+
+Nothing in there, get out of here
